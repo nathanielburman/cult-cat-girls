@@ -13,4 +13,14 @@
    is the source, anything
    after this point is derived
    from the source.
-   
+
+cat girls are likely to come from egirls.
+
+egirls make great cat girls immediately and mosr egirls have cat ears.
+
+cosplayera also make great cat girls
+
+cosplay as a cat will be 20 years of culture
+
+cat subculture will lead to cow girl cosplays
+
