@@ -1,8 +1,7 @@
 # cult-cat-girls
 
-1. you are a cat
-2. you are a kitten or
-   a cat
+1. you are a cat or kitten
+2. you can purr
 3. you have cat ears
 4. you have fangs; kittens have sharp fangs and teeth
 5. you have cat claws; kittens have sharp claws
