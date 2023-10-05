@@ -1,10 +1,13 @@
 # cult-cat-girls
 
 1. you are a cat
-   when you are wearing
-   your ears
 2. you are a kitten or
    a cat
+3. you have cat ears
+4. you have fangs; kittens have sharp fangs and teeth
+5. you have cat claws; kittens have sharp claws
+6. you have a cat tail; kittena have to create the tail
+7. you have cat fur
 
    everything above here
    is the source, anything
