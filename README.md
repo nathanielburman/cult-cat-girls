@@ -23,3 +23,4 @@ cosplay as a cat will be 20 years of culture
 
 cat subculture will lead to cow girl cosplays
 
+cat genders are cat girls
