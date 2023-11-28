@@ -66,7 +66,7 @@
 ### PREY  - The Game
 ### 🐦 Bird : other selections are ( 👻 Ghost & 🐁 Mouse)
 ### 👻 Ghost is the open palm. 🐁 Mouse is the closed fist, 🐦 Bird is the scissors hand position. The 
-### 🐁 Mouse can beat a 🐦 bird. 🐦 Bird can beat a 👻 Ghost!
+### 🐁 Mouse can beat a 🐦 bird when on the same dimension as the floor. 🐦 Bird can fly and spook a 👻 Ghost!
 
 # - 
 ### SPIRIT - The Game
