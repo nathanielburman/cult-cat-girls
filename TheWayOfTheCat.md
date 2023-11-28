@@ -69,7 +69,7 @@
 
 # - 
 ### SPIRIT - The Game
-### ⁠L⁠i⁠g⁠h⁠t Dark Natural
+### 💡 ⁠L⁠i⁠g⁠h⁠t  : other selections are ( 🖤 Dark &  🌿 Natural)
 
 
 ## 🍉🍉🍉 # 1.  Watermellon
