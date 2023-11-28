@@ -44,3 +44,6 @@
 # 10 we do not interfere in cat or kitten meme magic.
 
 # 11 - Paws
+
+# 12 - Portal Cats
+## draw a circle with your mind. it is a bubble. pop. explosion. in your brain.
