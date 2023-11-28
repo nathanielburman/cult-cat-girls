@@ -53,12 +53,21 @@
 ### "name":"152rcp1final.png","description":" 
 ### Real Cats & Portals","image":"ipfs://QmcjdXy9vYWNzVkWefxhSz7iPwoGB3HxQ5f6rxpNncXqNG/37.png","attributes": "trait_type":"
 
+# - 
+
 ### PURRR
-Claws
+### Claws (Eyes, Portal)
+### Make a peace sign with your right hand to make the scissors symbol and to make the Claws symbol in this game. The closed fist is the Eyes sysmbol. The Portal symbol is the open palm.
+### Become adept in each position.
+
+# - 
 
 ### PREY
-### Bird
+### Bird (Ghost & Mouse)
+### Bird is the scissors hand position. The ghost is the open palm. Mouse is the closed fist.
+### Mouse can beat a bird. Bird can beat a Ghost!
 
+# - 
 ### SPIRIT
 ### ⁠L⁠i⁠g⁠h⁠t
 
