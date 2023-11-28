@@ -62,15 +62,13 @@ Claws"},{"trait_type":"
 ### SPIRIT","value":"
 ### ⁠L⁠i⁠g⁠h⁠t"},{"trait_type":"
 
-Special Slot A","value":" 
-🍉🍉🍉
-1.  Watermellon A #1"},{"trait_type":"
-Special Slot B","value":"
-🍒🍒🍒
-2. Cherries B"},{"trait_type":"
-Special Slot C","value":"
-7️⃣7️⃣7️⃣
-4. 777 C #2"},{"trait_type":"
+
+# 🍉🍉🍉
+## 1.  Watermellon A #1"},{"trait_type":"
+# 🍒🍒🍒
+## 2. Cherries B"},{"trait_type":"
+# 7️⃣7️⃣7️⃣
+## 4. 777 C #2"},{"trait_type":"
 
 ### Special Effect","value":"
 # Fangs of the Eclipse 150ap 2sp: Lore: 
