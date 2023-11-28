@@ -22,10 +22,15 @@
 ## IV - Fangs
 ###
 
-## Every cat knows The Way Of The Cat by heart.
+## V -  Every cat knows The Way Of The Cat by heart.
 
-## Claws
+## VI - Claws
 ### Kittens claws are the sharpest and spikyiest. Cats are the biggest.
 
-## Tails
+## VII - Tails
 ## tails are generated and distracting to kittens. Kittens can bring life back into old tails as a perk. Kittens tails have more bones.
+
+# IIX - Know The Way Of The Kitten, before you know the way of the cat.
+## We rest on the cat. We love the cat. The way of the cat is fat.
+
+# IX - You are too beautiful, don't even think about it.
