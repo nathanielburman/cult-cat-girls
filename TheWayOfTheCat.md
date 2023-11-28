@@ -63,9 +63,9 @@
 # - 
 
 ### PREY
-### Bird : other selections are (Ghost & Mouse)
-### Bird is the scissors hand position. The ghost is the open palm. Mouse is the closed fist.
-### Mouse can beat a bird. Bird can beat a Ghost!
+### 🐦 Bird : other selections are ( 👻 Ghost & 🐁 Mouse)
+### 👻 Ghost is the open palm. 🐁 Mouse is the closed fist, 🐦 Bird is the scissors hand position. The 
+### 🐁 Mouse can beat a 🐦 bird. 🐦 Bird can beat a 👻 Ghost!
 
 # - 
 ### SPIRIT
