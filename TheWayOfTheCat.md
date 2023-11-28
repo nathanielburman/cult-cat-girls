@@ -56,9 +56,9 @@
 # - 
 
 ### PURRR  - The Game
-### 🐾 Claws : other selections are ( 😻 Eyes & 🌀 Portal)
-### 🌀 Portal symbol is the open palm., Make a peace sign with your right hand to make the scissors symbol and to make the 🐾 Claws symbol in this game. The closed fist is the
-### 😻 Eyes sysmbol. The,
+### 🐾 Claws : other selections are ( 😻 Eyes & 🌀 Portal) Make a peace sign with your right hand to make the scissors symbol and to make the 🐾 Claws symbol in this game.
+### 🌀 Portal symbol is the open palm and can cover the eyes of any who oppose.
+### 😻 Eyes symbol is the closed fist and can see infinitly past the claws.
 ### Become adept in each position.
 
 # - 
