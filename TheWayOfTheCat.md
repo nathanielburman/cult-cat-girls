@@ -9,14 +9,14 @@
 
 ### Where my Pacitties at? The most important manipulation they can do is the purrr. It can release a vibration that is complex.
 
-## Cat's Eyes are only the most beautiful of all eyes
+## I - Cat's Eyes are only the most beautiful of all eyes
 ### Of all the eyes, a cat's eyes displays the universe in the most beautiful of ways. This window opens all the way up, becasue a cat's eyes are the best.
 
-## Kitten Wrangling
+## II - Kitten Wrangling
 ### Always wrangle the kittens in an orderly fashion and with form. Kittne s must think its total chaos.
 
-## Licking
+## III - Licking
 ### Cat's toungues are evolved to rip the flesh off of bone.
 
-## Fangs
+## IV - Fangs
 ###
