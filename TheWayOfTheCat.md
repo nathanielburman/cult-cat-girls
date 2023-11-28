@@ -2,10 +2,10 @@
 
 ## By N. M. A. Burrrmman
 
-## 1. I am a cat.
-## 2. I have wiskers
-## 3. I have cat ears
-## 4. etc. (see other wiskers for more mation)
+1. I am a cat.
+2. I have wiskers
+3. I have cat ears
+4. etc. (see other wiskers for more mation)
 
 ### Where my Pacitties at? The most important manipulation they can do is the purrr. It can release a vibration that is complex.
 
