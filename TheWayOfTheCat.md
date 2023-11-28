@@ -22,3 +22,9 @@
 ###
 
 ## Every cat knows The Way Of The Cat by heart.
+
+## Claws
+### Kittens claws are the sharpest and spikyiest. Cats are the biggest.
+
+## Tails
+## tails are generated and distracting to kittens. Kittens can bring life back into old tails as a perk. Kittens tails have more bones.
