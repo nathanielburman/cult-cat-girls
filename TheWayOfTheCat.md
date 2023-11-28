@@ -55,21 +55,21 @@
 
 # - 
 
-### PURRR
+### PURRR  - The Game
 ### Claws : other selections are (Eyes & Portal)
 ### Make a peace sign with your right hand to make the scissors symbol and to make the Claws symbol in this game. The closed fist is the Eyes sysmbol. The Portal symbol is the open palm.
 ### Become adept in each position.
 
 # - 
 
-### PREY
+### PREY  - The Game
 ### 🐦 Bird : other selections are ( 👻 Ghost & 🐁 Mouse)
 ### 👻 Ghost is the open palm. 🐁 Mouse is the closed fist, 🐦 Bird is the scissors hand position. The 
 ### 🐁 Mouse can beat a 🐦 bird. 🐦 Bird can beat a 👻 Ghost!
 
 # - 
-### SPIRIT
-### ⁠L⁠i⁠g⁠h⁠t
+### SPIRIT - The Game
+### ⁠L⁠i⁠g⁠h⁠t Dark Natural
 
 
 ## 🍉🍉🍉 # 1.  Watermellon
