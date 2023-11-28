@@ -46,4 +46,6 @@
 # 11 - Paws
 
 # 12 - Portal Cats
+## https://opensea.io/collection/real-cats-portals 
+## img[https://i.seadn.io/s/raw/files/b470da1ee89f95d191a35ea1cd5c71f9.png?auto=format&dpr=1&w=1000]
 ## draw a circle with your mind. it is a bubble. pop. explosion. in your brain.
