@@ -11,7 +11,7 @@
 ### old version {Where my Pacitties at? The most important manipulation they can do is the purrr. It can release a vibration that is complex.}
 
 ## I - Cat's Eyes are only the most beautiful of all eyes
-### Of all the eyes, a cat's eyes displays the universe in the most beautiful of ways. This window opens all the way up, becasue a cat's eyes are the best.
+### Of all the eyes, a cat's eyes displays the universe in the most beautiful of ways. This window opens all the way up, becasue a cat's eyes are the best opened up, up , up , up, up, up, up if you need more ups you can say up more or go down, down, down, as you need to recalibrate your emotional sensors.
 
 ## II - Kitten Wrangling
 ### Always wrangle the kittens in an orderly fashion and with form. Kittne s must think its total chaos.
