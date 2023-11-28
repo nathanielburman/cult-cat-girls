@@ -53,19 +53,19 @@
 ### "name":"152rcp1final.png","description":" 
 ### Real Cats & Portals","image":"ipfs://QmcjdXy9vYWNzVkWefxhSz7iPwoGB3HxQ5f6rxpNncXqNG/37.png","attributes": "trait_type":"
 
-### PURRR","value":"
-Claws"},{"trait_type":"
+### PURRR
+Claws
 
-### PREY","value":"
-### Bird"},{"trait_type":"
+### PREY
+### Bird
 
-### SPIRIT","value":"
-### ⁠L⁠i⁠g⁠h⁠t"},{"trait_type":"
+### SPIRIT
+### ⁠L⁠i⁠g⁠h⁠t
 
 
-## 🍉🍉🍉 # 1.  Watermellon A #1"},{"trait_type":"
-## 🍒🍒🍒 # 2. Cherries B"},{"trait_type":"
-## 7️⃣7️⃣7️⃣ # 4. 777 C #2"},{"trait_type":"
+## 🍉🍉🍉 # 1.  Watermellon
+## 🍒🍒🍒 # 2. Cherries
+## 7️⃣7️⃣7️⃣ # 4. 777
 
 ### Special Effect","value":"
 # Fangs of the Eclipse 150ap 2sp: Lore: 
