@@ -40,3 +40,6 @@
 
 # 0 - Time Travel
 ## There once was a cat, that travelled back, into tri. Who met a cat, that triangled back forward into time. Who, I, met, a long, time, ago.
+
+# 10 we do not interfere in cat or kitten meme magic.
+
