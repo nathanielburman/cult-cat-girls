@@ -28,3 +28,8 @@ cat subculture will lead to cow girl cosplays
 cat genders are cat girls
 
 you can only love one cat girl at a time
+
+![](https://github.com/nathanielburman/cult-cat-girls/blob/main/01Capture.PNG)
+![](https://github.com/nathanielburman/cult-cat-girls/blob/main/02Capture.PNG)
+![](https://github.com/nathanielburman/cult-cat-girls/blob/main/03Capture.PNG)
+![](https://github.com/nathanielburman/cult-cat-girls/blob/main/04Capture.PNG)
