@@ -88,8 +88,11 @@
 
 ### Portal Master
 # Moon Portal Master +Spell: Selene the Lunar Enchantress\nLore: 
-## Selene is the Moon Portal Master, linked to the mysterious power of the moon. Her ultimate skill, \"Moonlit Dreamweave,\" casts a silvery web of dreams that ensnares her foes and renders them powerless. It is believed that those caught in this enchantment are transported to a world of their deepest desires, leaving them oblivious to the waking realm."},{"trait_type":"Background","value":"Magic"},{"trait_type":"
+## Selene is the Moon Portal Master, linked to the mysterious power of the moon. Her ultimate skill, \"Moonlit Dreamweave,\" casts a silvery web of dreams that ensnares her foes and renders them powerless. It is believed that those caught in this enchantment are transported to a world of their deepest desires, leaving them oblivious to the waking realm.
+
+### Background
+### Magic
 
 ### Portal Cats
 # Quicksilver the Alchemical Alchemist\n
-## Quicksilver possesses the power to transmute any substance into gold or silver. They are the guardian of the Philosopher's Portal, where wealth and knowledge meet."}]}
+## Quicksilver possesses the power to transmute any substance into gold or silver. They are the guardian of the Philosopher's Portal, where wealth and knowledge meet.
