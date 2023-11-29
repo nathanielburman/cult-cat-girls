@@ -50,8 +50,9 @@
 ## ![](https://i.seadn.io/s/raw/files/b470da1ee89f95d191a35ea1cd5c71f9.png?auto=format&dpr=1&w=1000)
 ## draw a circle with your mind. it is a bubble. pop. explosion. in your brain.
 
-### "name":"152rcp1final.png","description":" 
-### Real Cats & Portals","image":"ipfs://QmcjdXy9vYWNzVkWefxhSz7iPwoGB3HxQ5f6rxpNncXqNG/37.png","attributes": "trait_type":"
+### 152rcp1final.png
+### Real Cats & Portals
+### ipfs://QmcjdXy9vYWNzVkWefxhSz7iPwoGB3HxQ5f6rxpNncXqNG/37.png
 
 # - 
 
