@@ -22,6 +22,20 @@ Both cats and kittens delight. One man's cat is another man's kitten and a kitte
 
 > I love kittens all the time. But cats can get my imediate attention so they do not have my love all of the time. However, one kitten becomes my heart but, if two kittens mess around then, 1, kitten, must, be, found!
 
+...
+
+I experienced my first kitten to lamb transformation and I was impressed. Her lamb ventured into territory where I started to judge her lamb like qualities and then I wanted to pounce on her like a cat or dragon and eat her. I really felt it and got excited at her movements and wanted to eat her. She is a really beautiful lamb egirl with amazing red lips. Her lips and black and white lamb ears really caome right out at me. I was convinced by her lamb. It went from kitten to lamb pretty impecibly. Her lamb transformation was slow and it changed her sleepy from a kitten like sleepy to a lamb like sleepy that is indefinable except for her movements. Her facial features changes and her eyes changed. And her motions and head from side to side and leaning was different. 
+
+> Maybe she is the perfect lamb or sheep egirl but I first saw her as a kitten. 
+
+And I was angry at the seconds in my days and outside of the lamb and me, knowing, she knowing my mood and temperment actually changed her into a lamb. And the lamb egirl kept calming me! everytime i was feeling excited I would take one look at her and her sleepy time was different, it was a lamb sleepy time and less playful in an aggrivating way to a kitten. Her lazy sleepy style affected my inner cat. But it wasnt her it was me. 
+
+> That's why it made me get so excited from my half sleepy state and I just jumped on her with my mind and ate her up.
+
+But she was still there. so I started understanding that part. I just started to eat this little lamb. I ate her all up. I wanted to eat her too. I felt it. It wasnt her it was me? No, by this time, her lamb qualities were taking both of us over and rawr! So there's a little lamb out there too now. And this allready happened before. Becaseu I'm all like! hay baby! I remember us! I love you! I love you little lamb. And why a lamb? it's such a strong change from cat to lamb. I saw bunnies and stuff but this was, I opened up my egirl portal and bam a kitten. Oh hey kitten, I am so happy to see you, Rawr I am angry about this stuff, then poof into a lamb. And I'm all like... a lamb. what, the heck is this? a lamb? come on? this is too obvious. a lamb? and then poof a little lamb turns into clouds and you go to sleep this chapter.
+
+...
+
 ### Purrr: The most important manipulation they can do is the purrr. It can release a vibration that is complex.
 ### old version {Where my Pacitties at? The most important manipulation they can do is the purrr. It can release a vibration that is complex.}
 
