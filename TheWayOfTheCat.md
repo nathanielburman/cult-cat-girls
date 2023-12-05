@@ -41,6 +41,10 @@ So they lambed me. I am taking the fall on this one. I mentioned wanting to eat 
 So, as cat and kittens we want to be noticing of other ears and what they mean to our e-species.
 ...
 
+Cats are predators to snakes. Be on gaurd.
+
+...
+
 ### Purrr: The most important manipulation they can do is the purrr. It can release a vibration that is complex.
 ### old version {Where my Pacitties at? The most important manipulation they can do is the purrr. It can release a vibration that is complex.}
 
