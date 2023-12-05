@@ -95,6 +95,8 @@ The Rules Of Wrangling
 
 Tails are an upgrade to the normal cat egirl filter. Tails come to life for kittens. Tails are a way of life for warriors. Tails protect your back and show your weight.
 
+I have a tail even when I do not have ears on, I am not a kitten. 
+
 # IIX - Know The Way Of The Kitten, before you know the way of the cat.
 ## We rest on the cat. We love the cat. The way of the cat is fat.
 
