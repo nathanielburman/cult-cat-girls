@@ -1,7 +1,7 @@
 # cult-cat-girls
 UPDATES:
 
-99 - See the file named WayOfTheCat.md for updates to the cult.
+99 - See the file <a href="https://github.com/nathanielburman/cult-cat-girls/blob/main/TheWayOfTheCat.md"> WayOfTheCat.md for updates to the cult.</a>
 
 98 - See Cat Girl Epic ONE
 
