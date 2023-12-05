@@ -62,6 +62,17 @@ I do not make jest when I say the news will get them excited, but not in a good 
 
 Love of the cat and cat love and kitten love are the most important way to wranggle a kitten. But they wanto to play and sleep all day. Sleepy kitten time, sleep kitten time, okay play time play time, sleepy play time kitten love. kittens love the play time. But you have to wrangle them in for the story time and the sleepy time.
 
+Bedroom kitten wrangling is easy as one two three. First take your kittens which are playing or laying there and wrangle them up into a little frenzy. Then take some love and redirect it into attention that is kittens only. Finaly, take a measure of good love and love the kittens true.
+
+Kittens behave differently on a bed. Bedroom kittens are special and do come out of closets and out from under beds at will. You can't wrangle a wrangled kitten if the kitten was wrangled after wrangling season.
+
+The Rules Of Wrangling
+1. dont wrangle a wrangler
+2. wrangle a kitten perfectly
+3. finish the wrangle with a nose boop or a quick cuddle - you can tell her she is beautiful or her hair is beautiful or anything like that too
+
+> So, you arent wrangling a kitten, your wrangling a perfect soul.
+
 ## III - Licking
 ### Cat's toungues are evolved to rip the flesh off of bone.
 
