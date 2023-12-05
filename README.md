@@ -1,7 +1,10 @@
 # cult-cat-girls
 UPDATES:
+
 99 - See the file named WayOfTheCat.md for updates to the cult.
+
 98 - See Cat Girl Epic ONE
+
 "You have no idea how amazing it feels to pur" nb
 
 1. you are a cat or kitten
