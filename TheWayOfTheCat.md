@@ -129,6 +129,17 @@ Old cats running around but they dont have their heads croowned and their memori
 
 > It is a maze upon which woman stands.
 
+Old haggy cats are blah blah blah, with the news of the blah blah blah
+
+> They are full of tales about their tails oh about their tails
+
+They don't have tales, they have stories about sales. I saw a sale that was really special. Got it hey, kittens dont care about sales. Frazzle!
+
+I'm about to frazzle this dazzler of an older cat. She keeps coming off kitten and whoa.
+
+So this dazzler came by the other day and she was an old cat, but get out of here you old cat burgler!
+
+
 # 12 - Portal Cats
 ## https://opensea.io/collection/real-cats-portals 
 ## ![](https://i.seadn.io/s/raw/files/b470da1ee89f95d191a35ea1cd5c71f9.png?auto=format&dpr=1&w=1000)
