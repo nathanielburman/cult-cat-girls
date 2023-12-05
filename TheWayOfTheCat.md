@@ -8,7 +8,9 @@
 4. etc. (see other wiskers for more mation)
 
 ## 0 - Cat Ears
-As soon as the moment an egirl puts on her cat ears she is transported and becomes cat like and different from human.
+> As soon as the moment an egirl puts on her cat ears she is transported and becomes cat like and different from human.
+
+> This can be one of the most special moments in an egirl's life.
 
 She will not exibit any cat like qualities to the uninitiated. Image in your mind just a more perfect human, and that is the cat egirl subtype.
 
