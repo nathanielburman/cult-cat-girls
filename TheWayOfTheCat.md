@@ -46,7 +46,9 @@ So, as cat and kittens we want to be noticing of other ears and what they mean t
 
 Cats are predators to snakes. Be on gaurd.
 
-The confusion comes from the snake. Hit the snake with a paw and see the snake dance in their confusion. Hit them with a word like hypocrite and watch them dance for fun. Kittens in small groups are extremely dangerous to snakes.
+The confusion comes from the snake. Hit the snake with a paw and see the snake dance in their confusion. Hit them with a word like hypocrite and watch them dance for fun. 
+
+> Kittens in small groups are extremely dangerous to snakes.
 
 The snake lies and slithers around the truth to strike at you with another lie. Becareful with these snakes.
 
