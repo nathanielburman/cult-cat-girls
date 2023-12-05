@@ -60,11 +60,15 @@ You have to frazzle the kittens up abit to get them going in the morning. the ne
 
 I do not make jest when I say the news will get them excited, but not in a good way you want your kittens to be. Politics works best for frazzling your kittens. Tell them to bite the vote! Tell them to claw the vote. Hell, i'd even tell them to sniff the vote. Nibble on the vote. Bite the vote. Lick the vote? Eye the vote! Hit the vote. Pur the vote and all the cat things that cats can do to mess up a vote for humans. Cat politics vary but have been confirmed to be very girlie.
 
+<img src="https://github.com/nathanielburman/cult-cat-girls/blob/main/2229dream_TradingCard.jpg" width="400px"></img>
+
 Love of the cat and cat love and kitten love are the most important way to wranggle a kitten. But they wanto to play and sleep all day. Sleepy kitten time, sleep kitten time, okay play time play time, sleepy play time kitten love. kittens love the play time. But you have to wrangle them in for the story time and the sleepy time.
 
 Bedroom kitten wrangling is easy as one two three. First take your kittens which are playing or laying there and wrangle them up into a little frenzy. Then take some love and redirect it into attention that is kittens only. Finaly, take a measure of good love and love the kittens true.
 
 Kittens behave differently on a bed. Bedroom kittens are special and do come out of closets and out from under beds at will. You can't wrangle a wrangled kitten if the kitten was wrangled after wrangling season.
+
+<img src="https://github.com/nathanielburman/cult-cat-girls/blob/main/2228dream_TradingCard.jpg" width="400px"></img>
 
 The Rules Of Wrangling
 1. dont wrangle a wrangler
