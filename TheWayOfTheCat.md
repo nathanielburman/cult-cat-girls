@@ -121,6 +121,14 @@ Old cats have a way about them that younger cats may not understand. Different c
 
 > Kittens never grow old
 
+If cats are a certain way then they will be a way on their way go away old cats go away shoo away go away old cats. old cats. hey. old cats. go away go away. You are so old just stay. stay for a little while long old cats. go away old cats just stay old cats go away old cats go away.
+
+Old cat be buggin out all the time. The news begetts a ryhme. Old cats are full of the news. They will snooze and burn on the news.
+
+Old cats running around but they dont have their heads croowned and their memories still fade and go up and go down i can't tell you how much their memories go. They lose memory. They gain memory. Their memory cannot be trusted anymore. What is it? Nobody knows.
+
+> It is a maze upon which woman stands.
+
 # 12 - Portal Cats
 ## https://opensea.io/collection/real-cats-portals 
 ## ![](https://i.seadn.io/s/raw/files/b470da1ee89f95d191a35ea1cd5c71f9.png?auto=format&dpr=1&w=1000)
