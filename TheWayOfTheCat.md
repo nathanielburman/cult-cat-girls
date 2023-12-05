@@ -39,9 +39,12 @@ I said that I got Lambed. Because some egirls might say that I instantly fell fo
 So they lambed me. I am taking the fall on this one. I mentioned wanting to eat her like a dragon, so for the sake of all kittens I was a dragon not a cat. Also, important, she said verbally that she was fond of dragon. I said to the room, Nobody eat this lamb. And then I ate her.
 
 So, as cat and kittens we want to be noticing of other ears and what they mean to our e-species.
+
 ...
 
 Cats are predators to snakes. Be on gaurd.
+
+The confusion comes from the snake. Hit the snake with a paw and see the snake dance in their confusion. Hit them with a word like hypocrite and watch them dance for fun. Kittens in small groups are extremely dangerous to snakes.
 
 ...
 
