@@ -93,6 +93,8 @@ The Rules Of Wrangling
 ## VII - Tails
 ## tails are generated and distracting to kittens. Kittens can bring life back into old tails as a perk. Kittens tails have more bones.
 
+Tails are an upgrade to the normal cat egirl filter. Tails come to life for kittens. Tails are a way of life for warriors. Tails protect your back and show your weight.
+
 # IIX - Know The Way Of The Kitten, before you know the way of the cat.
 ## We rest on the cat. We love the cat. The way of the cat is fat.
 
