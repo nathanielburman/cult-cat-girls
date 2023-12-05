@@ -50,6 +50,8 @@ The confusion comes from the snake. Hit the snake with a paw and see the snake d
 
 The snake lies and slithers around the truth to strike at you with another lie. Becareful with these snakes.
 
+Snakes are already confused. They wobble in confusion. They latch onto your eyes for their own protection. They are wobbly and confused and need your support. Don't let them lean on you or it.
+
 <img src="https://github.com/nathanielburman/cult-cat-girls/blob/main/3332dream_TradingCard.jpg" width="400px"></img>
 
 ...
