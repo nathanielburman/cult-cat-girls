@@ -28,6 +28,8 @@ I experienced my first kitten to lamb transformation and I was impressed. Her la
 
 > Maybe she is the perfect lamb or sheep egirl but I first saw her as a kitten. 
 
+<img src="https://github.com/nathanielburman/cult-cat-girls/blob/main/3331dream_TradingCard.jpg" width="400px"></img>
+
 And I was angry at the seconds in my days and outside of the lamb and me, knowing, she knowing my mood and temperment actually changed her into a lamb. And the lamb egirl kept calming me! everytime i was feeling excited I would take one look at her and her sleepy time was different, it was a lamb sleepy time and less playful in an aggrivating way to a kitten. Her lazy sleepy style affected my inner cat. But it wasnt her it was me. 
 
 > That's why it made me get so excited from my half sleepy state and I just jumped on her with my mind and ate her up.
@@ -47,6 +49,8 @@ Cats are predators to snakes. Be on gaurd.
 The confusion comes from the snake. Hit the snake with a paw and see the snake dance in their confusion. Hit them with a word like hypocrite and watch them dance for fun. Kittens in small groups are extremely dangerous to snakes.
 
 The snake lies and slithers around the truth to strike at you with another lie. Becareful with these snakes.
+
+<img src="https://github.com/nathanielburman/cult-cat-girls/blob/main/3332dream_TradingCard.jpg" width="400px"></img>
 
 ...
 
