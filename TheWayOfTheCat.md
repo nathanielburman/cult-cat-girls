@@ -26,15 +26,21 @@ I love kittens all the time. But cats can get my imediate attention so they do n
 ## I - Cat's Eyes are only the most beautiful of all eyes
 ### Of all the eyes, a cat's eyes displays the universe in the most beautiful of ways. This window opens all the way up, becasue a cat's eyes are the best opened up, up , up , up, up, up, up if you need more ups you can say up more or go down, down, down, as you need to recalibrate your emotional sensors.
 
-Cat's eyes and kittens eyes are glossy and wet. they shine with sparkles and candy drops. candy flows from their lips. Sometimes their lips are red like blood the blood of their kittens enemy.
+> Cat's eyes and kittens eyes are glossy and wet. they shine with sparkles and candy drops. candy flows from their lips. Sometimes their lips are red like blood the blood of their kittens enemy.
 
-Kittens eyes are egirls eyes. They are the same usually. However cat girls can and will modify their eye type and they are a modified version of an egirl called a cat girl egirl. They originate their eyes from egirls and egirls orginate thier eyes from previous cat girls of many privious generations ago. buthdfhadfhjk;ghjk The cat girls from eons ago are channeling through the egirls subculture cult.
+Kittens eyes are egirls eyes. They are the same usually. However cat girls can and will modify their eye type and they are a modified version of an egirl called a cat girl egirl. 
+
+> They originate their eyes from egirls and egirls orginate thier eyes from previous cat girls of many privious generations ago. buthdfhadfhjk;ghjk 
+
+The cat girls from eons ago are channeling through the egirls subculture cult.
 
 The eyes of a kitten or cat can do actual damage to your heart. Applying real force to it and 10 ap to your health. The eyes of a kitten are beautiful like galaxies. of candy. The eyes of the kittens are like universes all coliding and boom.
 
 ## 2 - Kitten Purrring
 Purring is for real. 
+
 > It is not a rumor. A cat can pur. So a human can not pur. But a cat can pur. A cat can pur when it breaths. 
+
 I love puring like a cat. I need to do it more, but they will think about me puring all the time right? no, not all the time. Well, I will think about purring. Its more than just a vibration. You can sync up with a real cat too. The vibration is not too fast to catch onto and it is a real bond when you are killing some mice together and purrr and roar.
 
 Kitten roaring is called Rawr! or just rawr! and different kinds of rars. And they growl at each other and at humans. Cat girls are not humans and will growl at other egirls and humans. Hoever, other egirls are into the same stuff so they share a certain brainwave and the cat emerges victorious because they are the goddesses present.
@@ -43,7 +49,7 @@ Kitten roars are powerful like cotton candy forests on fire in my heart. egirl c
 
 Growl kitten growl. And you can purr like a cat.
 
-Purring and growling come from a similar source if you ever rewonder about why I focused on the growls. Rawr!
+> Purring and growling come from a similar source if you ever rewonder about why I focused on the growls. Rawr!
 
 ## II - Kitten Wrangling
 ### Always wrangle the kittens in an orderly fashion and with form. Kittne s must think its total chaos.
