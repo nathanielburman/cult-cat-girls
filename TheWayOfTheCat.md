@@ -70,7 +70,7 @@ Kittens behave differently on a bed. Bedroom kittens are special and do come out
 
 Wrangling Season was first discovered by NMA Burrrman and was found to be celebrated on the first new moon of the equinox at the end of the year. Seasons vary greatly. Cat girls are not on notice. Nothing is different. This season was discovered to exist on top of our layer of reality. Nobody controls the seasons. Who would want to control the seasons? Cat girls took a vote. They all agreed in unity.
 
-<img src="https://github.com/nathanielburman/cult-cat-girls/blob/main/2228dream_TradingCard.jpg" width="400px"></img>
+<img src="https://github.com/nathanielburman/cult-cat-girls/blob/main/2227dream_TradingCard.jpg" width="400px"></img>
 
 The Rules Of Wrangling
 1. dont wrangle a wrangler
