@@ -7,6 +7,19 @@
 3. I have cat ears
 4. etc. (see other wiskers for more mation)
 
+## 0 - Cat Ears
+As soon as the moment an egirl puts on her cat ears she is transported and becomes cat like and different from human.
+
+She will not exibit any cat like qualities to the uninitiated. Image in your mind just a more perfect human, and that is the cat egirl subtype.
+
+Her cat ears do not define her cat like qualities anymore than a new outfit. Ears are very special however and they can hold your power and become a source of your cat like qualities in each one of their ways. 
+
+It is better for what is not writen.
+
+Both cats and kittens delight. One man's cat is another man's kitten and a kitten can turn into a cat in a split second and a cat can take your face off with claws (see claws upgrade chapter)
+
+I love kittens all the time. But cats can get my imediate attention so they do not have my love all of the time. If two kittens mess around then 1 kitten must be found!
+
 ### Purrr: The most important manipulation they can do is the purrr. It can release a vibration that is complex.
 ### old version {Where my Pacitties at? The most important manipulation they can do is the purrr. It can release a vibration that is complex.}
 
@@ -96,3 +109,12 @@
 ### Portal Cats
 # Quicksilver the Alchemical Alchemist\n
 ## Quicksilver possesses the power to transmute any substance into gold or silver. They are the guardian of the Philosopher's Portal, where wealth and knowledge meet.
+
+subtopia
+
+## The kittens
+The kittens will play. We watch the kittens play. They come out from their portals and they play.
+
+These are egirls and they play through portals.
+
+There could be an egirl goddess in this simulation or reality the way i see it. There could be multiple goddesses that represent the cat girl cat egirl subculcure type of woman. These are beautiful creatures when they are in cat mode.
