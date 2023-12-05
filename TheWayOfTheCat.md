@@ -26,6 +26,13 @@ I love kittens all the time. But cats can get my imediate attention so they do n
 ## I - Cat's Eyes are only the most beautiful of all eyes
 ### Of all the eyes, a cat's eyes displays the universe in the most beautiful of ways. This window opens all the way up, becasue a cat's eyes are the best opened up, up , up , up, up, up, up if you need more ups you can say up more or go down, down, down, as you need to recalibrate your emotional sensors.
 
+Cat's eyes and kittens eyes are glossy and wet. they shine with sparkles and candy drops. candy flows from their lips. Sometimes their lips are red like blood the blood of their kittens enemy.
+
+Kittens eyes are egirls eyes. They are the same usually. However cat girls can and will modify their eye type and they are a modified version of an egirl called a cat girl egirl. They originate their eyes from egirls and egirls orginate thier eyes from previous cat girls of many privious generations ago. buthdfhadfhjk;ghjk The cat girls from eons ago are channeling through the egirls subculture cult.
+
+The eyes of a kitten or cat can do actual damage to your heart. Applying real force to it and 10 ap to your health. The eyes of a kitten are beautiful like galaxies. of candy. The eyes of the kittens are like universes all coliding and boom.
+
+
 ## II - Kitten Wrangling
 ### Always wrangle the kittens in an orderly fashion and with form. Kittne s must think its total chaos.
 
