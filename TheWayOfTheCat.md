@@ -38,6 +38,7 @@ I said that I got Lambed. Because some egirls might say that I instantly fell fo
 
 So they lambed me. I am taking the fall on this one. I mentioned wanting to eat her like a dragon, so for the sake of all kittens I was a dragon not a cat. Also, important, she said verbally that she was fond of dragon. I said to the room, Nobody eat this lamb. And then I ate her.
 
+So, as cat and kittens we want to be noticing of other ears and what they mean to our e-species.
 ...
 
 ### Purrr: The most important manipulation they can do is the purrr. It can release a vibration that is complex.
