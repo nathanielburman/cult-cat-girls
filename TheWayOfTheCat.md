@@ -85,6 +85,19 @@ Growl kitten growl. And you can purr like a cat.
 
 # 11 - Paws
 
+# TWELVE - Old Haggy Cats
+I once knew a beautiful girl who was a princess and I saved her from an evil witch and dragons and the was perfect in every way a woman could be.
+
+> Every cat grows old
+
+My woman grew old. And old women grow older still and older and older and older and this is an old spell, older and older and older and they fell themselves growing older. growing still, untill, they, feel, the weight of their ages, again again. until there's no more there are we are back to where we started which was old cats on the table.
+
+Old cats have a way about them that younger cats may not understand. Different cats are different.
+
+> Old Haggy Cats can be kittens too! Oh Noooooooo!
+
+> Kittens never grow old
+
 # 12 - Portal Cats
 ## https://opensea.io/collection/real-cats-portals 
 ## ![](https://i.seadn.io/s/raw/files/b470da1ee89f95d191a35ea1cd5c71f9.png?auto=format&dpr=1&w=1000)
