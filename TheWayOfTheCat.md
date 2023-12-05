@@ -34,6 +34,10 @@ And I was angry at the seconds in my days and outside of the lamb and me, knowin
 
 But she was still there. so I started understanding that part. I just started to eat this little lamb. I ate her all up. I wanted to eat her too. I felt it. It wasnt her it was me? No, by this time, her lamb qualities were taking both of us over and rawr! So there's a little lamb out there too now. And this allready happened before. Becaseu I'm all like! hay baby! I remember us! I love you! I love you little lamb. And why a lamb? it's such a strong change from cat to lamb. I saw bunnies and stuff but this was, I opened up my egirl portal and bam a kitten. Oh hey kitten, I am so happy to see you, Rawr I am angry about this stuff, then poof into a lamb. And I'm all like... a lamb. what, the heck is this? a lamb? come on? this is too obvious. a lamb? and then poof a little lamb turns into clouds and you go to sleep this chapter.
 
+I said that I got Lambed. Because some egirls might say that I instantly fell for the lamb slaughter. But those are kittens words and thoughts. This si serious cat business. Cat mentality and cat mental health. So. immediately after eating the lamb I felt sincere satisfaction and playfulness from the lamb. Also, the lamb was seen making gestures with its body that inflamed my emtions and made me feel like it was telling me to eat it. I am not joking or kidding. I saw it. Everyone saw the little lamb egirl shake like she was just about to run or something. She was actually baiting us.
+
+So they lambed me. I am taking the fall on this one. I mentioned wanting to eat her like a dragon, so for the sake of all kittens I was a dragon not a cat. Also, important, she said verbally that she was fond of dragon. I said to the room, Nobody eat this lamb. And then I ate her.
+
 ...
 
 ### Purrr: The most important manipulation they can do is the purrr. It can release a vibration that is complex.
