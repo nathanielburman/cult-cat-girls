@@ -141,13 +141,16 @@ So this dazzler came by the other day and she was an old cat, but get out of her
 
 
 # 12 - Portal Cats
-## https://opensea.io/collection/real-cats-portals 
-## ![](https://i.seadn.io/s/raw/files/b470da1ee89f95d191a35ea1cd5c71f9.png?auto=format&dpr=1&w=1000)
+ https://opensea.io/collection/real-cats-portals 
+ 
+ ![](https://i.seadn.io/s/raw/files/b470da1ee89f95d191a35ea1cd5c71f9.png?auto=format&dpr=1&w=1000)
 ## draw a circle with your mind. it is a bubble. pop. explosion. in your brain.
 
-### 152rcp1final.png
-### Real Cats & Portals
-### ipfs://QmcjdXy9vYWNzVkWefxhSz7iPwoGB3HxQ5f6rxpNncXqNG/37.png
+ 152rcp1final.png
+ 
+ Real Cats & Portals
+ 
+ ipfs://QmcjdXy9vYWNzVkWefxhSz7iPwoGB3HxQ5f6rxpNncXqNG/37.png
 
 # - 
 
@@ -173,24 +176,24 @@ So this dazzler came by the other day and she was an old cat, but get out of her
 ## 🍒🍒🍒 # 2. Cherries
 ## 7️⃣7️⃣7️⃣ # 4. 777
 
-### Special Effect
-# Fangs of the Eclipse 150ap 2sp: Lore: 
-## Cats possessing the \"Fangs of the Eclipse\" are enigmatic and are believed to have been touched by the forces of the cosmos. Their fangs are said to hold the power of celestial alignment. They are revered for their ability to channel the energy of the eclipse into their attacks.\n
+ Special Effect
+## Fangs of the Eclipse 150ap 2sp: Lore: 
+Cats possessing the \"Fangs of the Eclipse\" are enigmatic and are believed to have been touched by the forces of the cosmos. Their fangs are said to hold the power of celestial alignment. They are revered for their ability to channel the energy of the eclipse into their attacks.\n
 
-### Ability:
-# Fangs of the Eclipse\" 
-## attack empowers the cat to deliver a devastating bite infused with cosmic energy. It can pierce through even the toughest of adversaries, inflicting both physical and cosmic damage."},{"trait_type":"Hit Points","value":"150"},{"trait_type":"Attack Points","value":"100"},{"trait_type":"Special Points","value":"12"},{"trait_type":"
+ Ability:
+## Fangs of the Eclipse\" 
+attack empowers the cat to deliver a devastating bite infused with cosmic energy. It can pierce through even the toughest of adversaries, inflicting both physical and cosmic damage."},{"trait_type":"Hit Points","value":"150"},{"trait_type":"Attack Points","value":"100"},{"trait_type":"Special Points","value":"12"},{"trait_type":"
 
-### Portal Master
-# Moon Portal Master +Spell: Selene the Lunar Enchantress\nLore: 
-## Selene is the Moon Portal Master, linked to the mysterious power of the moon. Her ultimate skill, \"Moonlit Dreamweave,\" casts a silvery web of dreams that ensnares her foes and renders them powerless. It is believed that those caught in this enchantment are transported to a world of their deepest desires, leaving them oblivious to the waking realm.
+Portal Master
+## Moon Portal Master +Spell: Selene the Lunar Enchantress\nLore: 
+Selene is the Moon Portal Master, linked to the mysterious power of the moon. Her ultimate skill, \"Moonlit Dreamweave,\" casts a silvery web of dreams that ensnares her foes and renders them powerless. It is believed that those caught in this enchantment are transported to a world of their deepest desires, leaving them oblivious to the waking realm.
 
-### Background
-### Magic
+Background
+Magic
 
-### Portal Cats
-# Quicksilver the Alchemical Alchemist\n
-## Quicksilver possesses the power to transmute any substance into gold or silver. They are the guardian of the Philosopher's Portal, where wealth and knowledge meet.
+ Portal Cats
+## Quicksilver the Alchemical Alchemist\n
+ Quicksilver possesses the power to transmute any substance into gold or silver. They are the guardian of the Philosopher's Portal, where wealth and knowledge meet.
 
 subtopia
 
