@@ -64,7 +64,9 @@ Love of the cat and cat love and kitten love are the most important way to wrang
 
 Bedroom kitten wrangling is easy as one two three. First take your kittens which are playing or laying there and wrangle them up into a little frenzy. Then take some love and redirect it into attention that is kittens only. Finaly, take a measure of good love and love the kittens true.
 
-Kittens behave differently on a bed. Bedroom kittens are special and do come out of closets and out from under beds at will. You can't wrangle a wrangled kitten if the kitten was wrangled after wrangling season.
+Kittens behave differently on a bed. Bedroom kittens are special and do come out of closets and out from under beds at will. 
+
+> You can't wrangle a wrangled kitten if the kitten was wrangled after wrangling season.
 
 Wrangling Season was first discovered by NMA Burrrman and was found to be celebrated on the first new moon of the equinox at the end of the year. Seasons vary greatly. Cat girls are not on notice. Nothing is different. This season was discovered to exist on top of our layer of reality. Nobody controls the seasons. Who would want to control the seasons? Cat girls took a vote. They all agreed in unity.
 
