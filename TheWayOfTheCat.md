@@ -150,6 +150,8 @@ I have a tail even when I do not have ears on, I am not a kitten.
 # 0 - Time Travel
 ## There once was a cat, that travelled back, into tri. Who met a cat, that triangled back forward into time. Who, I, met, a long, time, ago.
 
+<img src="https://github.com/nathanielburman/cult-cat-girls/blob/main/border02.png" width="100%" height="150px" ></img>
+
 # 10 we do not interfere in cat or kitten meme magic.
 
 # 11 - Paws
