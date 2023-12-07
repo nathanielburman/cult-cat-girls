@@ -1,5 +1,5 @@
 # The Way Of The Cat (fragments still being recovered daily)
-
+<img src="https://github.com/nathanielburman/cult-cat-girls/blob/main/border06.png" width="100%"></img>
 ## By N. M. A. Burrrmman
 
 1. I am a cat.
