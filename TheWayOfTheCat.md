@@ -85,6 +85,8 @@ Purring is for real.
 
 > It is not a rumor. A cat can pur. So a human can not pur. But a cat can pur. A cat can pur when it breaths. 
 
+<img src="https://github.com/nathanielburman/cult-cat-girls/blob/main/border03.png" width="100%"></img>
+
 I love puring like a cat. I need to do it more, but they will think about me puring all the time right? no, not all the time. Well, I will think about purring. Its more than just a vibration. You can sync up with a real cat too. The vibration is not too fast to catch onto and it is a real bond when you are killing some mice together and purrr and roar.
 
 Kitten roaring is called Rawr! or just rawr! and different kinds of rars. And they growl at each other and at humans. Cat girls are not humans and will growl at other egirls and humans. Hoever, other egirls are into the same stuff so they share a certain brainwave and the cat emerges victorious because they are the goddesses present.
