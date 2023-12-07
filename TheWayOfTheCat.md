@@ -12,6 +12,8 @@
 
 > This can be one of the most special moments in an egirl's life.
 
+<img src="https://github.com/nathanielburman/cult-cat-girls/blob/main/catears01.png" width="100%"></img>
+
 She will not exibit any cat like qualities to the uninitiated. Image in your mind just a more perfect human, and that is the cat egirl subtype.
 
 Her cat ears do not define her cat like qualities anymore than a new outfit. Ears are very special however and they can hold your power and become a source of your cat like qualities in each one of their ways. 
