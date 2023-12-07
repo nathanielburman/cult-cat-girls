@@ -121,7 +121,7 @@ The Rules Of Wrangling
 ## IV - Fangs
 ###
 
-## V -  Every cat knows The Way Of The Cat by heart.
+## V - Heart - Every cat knows The Way Of The Cat by heart.
 
 ## VI - Claws
 ### Kittens claws are the sharpest and spikyiest. Cats are the biggest.
