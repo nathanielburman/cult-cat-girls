@@ -100,6 +100,8 @@ Growl kitten growl. And you can purr like a cat.
 ## II - Kitten Wrangling
 > Always wrangle the kittens in an orderly fashion and with form. Kittne s must think its total chaos.
 
+<img src="https://github.com/nathanielburman/cult-cat-girls/blob/main/border04.png" width="100%"></img>
+
 You have to frazzle the kittens up abit to get them going in the morning. the news always does the trick. Tell them that gold prices are steady and that the stock market is going ip 1.2% However, this just came in, beep bee pbeep, their crypto stocks just went up 1.2%
 
 I do not make jest when I say the news will get them excited, but not in a good way you want your kittens to be. Politics works best for frazzling your kittens. Tell them to bite the vote! Tell them to claw the vote. Hell, i'd even tell them to sniff the vote. Nibble on the vote. Bite the vote. Lick the vote? Eye the vote! Hit the vote. Pur the vote and all the cat things that cats can do to mess up a vote for humans. Cat politics vary but have been confirmed to be very girlie.
