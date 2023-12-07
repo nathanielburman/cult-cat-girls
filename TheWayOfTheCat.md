@@ -72,6 +72,8 @@ Kittens eyes are egirls eyes. They are the same usually. However cat girls can a
 
 <img src="https://github.com/nathanielburman/cult-cat-girls/blob/main/cateyes01.png" width="100%" ></img>
 
+<img src="https://github.com/nathanielburman/cult-cat-girls/blob/main/cateyes02.png" width="100%"></img>
+
 > They originate their eyes from egirls and egirls orginate thier eyes from previous cat girls of many privious generations ago. buthdfhadfhjk;ghjk 
 
 The cat girls from eons ago are channeling through the egirls subculture cult.
