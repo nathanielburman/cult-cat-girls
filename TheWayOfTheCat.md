@@ -70,6 +70,8 @@ Snakes are already confused. They wobble in confusion. They latch onto your eyes
 
 Kittens eyes are egirls eyes. They are the same usually. However cat girls can and will modify their eye type and they are a modified version of an egirl called a cat girl egirl. 
 
+<img src="https://github.com/nathanielburman/cult-cat-girls/blob/main/cateyes01.png" width="100%" ></img>
+
 > They originate their eyes from egirls and egirls orginate thier eyes from previous cat girls of many privious generations ago. buthdfhadfhjk;ghjk 
 
 The cat girls from eons ago are channeling through the egirls subculture cult.
