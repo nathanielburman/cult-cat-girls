@@ -159,6 +159,8 @@ I once knew a beautiful girl who was a princess and I saved her from an evil wit
 
 > Every cat grows old
 
+<img src="https://github.com/nathanielburman/cult-cat-girls/blob/main/border01.png" width="100%" ></img>
+
 My woman grew old. And old women grow older still and older and older and older and this is an old spell, older and older and older and they fell themselves growing older. growing still, untill, they, feel, the weight of their ages, again again. until there's no more there are we are back to where we started which was old cats on the table.
 
 Old cats have a way about them that younger cats may not understand. Different cats are different.
