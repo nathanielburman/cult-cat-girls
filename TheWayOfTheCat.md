@@ -7,6 +7,12 @@
 3. I have cat ears
 4. etc. (see other wiskers for more mation)
 
+# Table of Contents
+1. [0 - Cat Ears](##0 - Cat Ears)
+2. [I - Cat's Eyes are only the most beautiful of all eyes](##I - Cat's Eyes are only the most beautiful of all eyes)
+3. [2 - Kitten Purrring](##2 - Kitten Purrring)
+4. [## II - Kitten Wrangling](##II - Kitten Wrangling)
+
 ## 0 - Cat Ears
 > As soon as the moment an egirl puts on her cat ears she is transported and becomes cat like and different from human.
 
