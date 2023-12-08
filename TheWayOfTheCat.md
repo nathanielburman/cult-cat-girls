@@ -7,6 +7,25 @@
 3. I have cat ears
 4. etc. (see other wiskers for more mation)
 
+# Table of Contents
+1. [0 - Cat Ears](#0---Cat-Ears)
+2. [I - Cat's Eyes are only the most beautiful of all eyes](#I---Cat's-Eyes-are-only-the-most-beautiful-of-all-eyes)
+3. [2 - Kitten Purrring](#2---Kitten-Purrring)
+4. [II - Kitten Wrangling](#II---Kitten-Wrangling)
+5. [III - Licking](#III---Licking)
+6. [IV - Fangs](#IV---Fangs)
+7. [V - Heart - Every cat knows The Way Of The Cat by heart.](#V---Heart---Every-cat-knows-The-Way-Of-The-Cat-by-heart.)
+8. [VI - Claws](#VI---Claws)
+9. [VII - Tails](#VII---Tails)
+10. [IIX - Know The Way Of The Kitten, before you know the way of the cat.](#IIX---Know-The-Way-Of-The-Kitten,-before-you-know-the-way-of-the-cat.)
+11. [IX - You are too beautiful, don't even think about it.](#IX---You-are-too-beautiful,-don't-even-think-about-it.)
+12. [X - Time Travel](#X---Time-Travel)
+13. [0 - Time Travel](#0---Time-Travel)
+13. [11 - Paws](#11---Paws)
+14. [TWELVE - Old Haggy Cats](#TWELVE---Old-Haggy-Cats)
+15. [12 - Portal Cats](#12---Portal-Cats)
+
+
 ## 0 - Cat Ears
 > As soon as the moment an egirl puts on her cat ears she is transported and becomes cat like and different from human.
 
